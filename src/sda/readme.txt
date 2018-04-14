@@ -6,6 +6,6 @@ czas po temu
       odpowiedni
       i najwyższy
 
-także
+także konfliktujemy, o coś słabo
 ten
    tego
